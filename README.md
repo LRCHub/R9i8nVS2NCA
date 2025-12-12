@@ -1,4 +1,4 @@
-# 鈴木このみ – Redo
+# Konomi Suzuki – redo
 
 > **歌詞登録ステータス：同期歌詞あり**
 
